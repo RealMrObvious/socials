@@ -1,1 +1,1 @@
-# socials
+https://realmrobvious.github.io/socials/
